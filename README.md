@@ -1,0 +1,2 @@
+# Mustafa-Aykac-DOS-komutlari
+ 
